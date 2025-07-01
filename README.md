@@ -1,6 +1,6 @@
-# Auraweb
+# Auraweb🤔
 
-I created a website with this repo using cloudflare pages 
+I created a website with this repo using cloudflare pages 💀☠️
 
-The link is here. 
-Myaurapages.pages.dev
+The link is here. 👇
+Myaurapages.pages.dev😘
